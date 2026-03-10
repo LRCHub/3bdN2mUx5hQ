@@ -1,4 +1,4 @@
-# LanPage – 是っぽっち
+# LanPage – 是っぽっち - In Correct
 
 > **歌詞登録ステータス：同期歌詞あり**
 
